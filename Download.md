@@ -15,3 +15,9 @@ https://www.techspot.com/downloads/downloadnowfile/5358/?evp=9a27d4d382cf749878f
 [6]()
 
 ```
+
+```console
+
+idm exe download
+
+```
