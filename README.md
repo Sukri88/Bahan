@@ -1,7 +1,7 @@
 # Bahan
 
 
-[inayah](https://dooood.com/d/v821vlyui7adgtfi56egw5695yi3ng5)
+[inayah](https://dooood.com/d/ybm48ivq4f1qlkyjqibxn8z37hvvi2f)
 [1](https://dooood.com/d/5hiquveygw4ayjrvhzxhe3n5pu332wl)
 [2](https://dooood.com/d/kewuhkw32jn89k9vvdb2awzqdhpn2xg)
 [3](https://dooood.com/d/3em7i1wvtubnaqveh6kx3eecrgaizi7)
