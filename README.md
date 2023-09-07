@@ -3,7 +3,7 @@
 
 # Bahan
 
-[inayah](https://dooood.com/d/ybm48ivq4f1qlkyjqibxn8z37hvvi2f)
+[inayah](https://dooood.com/d/ry2kjywsg58ugbzhz7a9qizin259zcq)
 [1](https://dood.yt/d/t0dffcuhwtg5x49yvb8gwi6m3ptcozz)
 [2](https://dooood.com/d/kewuhkw32jn89k9vvdb2awzqdhpn2xg)
 [3](https://dooood.com/d/3em7i1wvtubnaqveh6kx3eecrgaizi7)
