@@ -6,13 +6,36 @@ https://www.techspot.com/downloads/downloadnowfile/5358/?evp=9a27d4d382cf749878f
 
  ```console
 
-[inayah]()
-[1]()
-[2]()
-[3]()
-[4]()
-[5]()
-[6]()
+https://de492ki.video-delivery.net/u5kj63fxb3e3sdgge7lcqlcajrpabr6um6eq5fqb6l5oizcfyymuctwpc7oq/woi7g3q47o~JDo3LaLpZN?token=ke1wyi9ddvtbl5qixsljrhst&expiry=1694135624962
+
+```
+
+```console
+
+idm exe download
+
+```
+
+```console
+
+idm exe download
+
+```
+
+```console
+
+idm exe download
+
+```
+```console
+
+idm exe download
+
+```
+
+```console
+
+idm exe download
 
 ```
 
