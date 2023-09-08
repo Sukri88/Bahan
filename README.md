@@ -1,7 +1,7 @@
 # Downloads
 
 [genyio](https://cloud.geny.io/)
-[godaily](https://cdn.apkflash.net/com.godaily.app/Go%20Daily_1.5.0_apkcombo.com.apk?ecp=Y29tLmdvZGFpbHkuYXBwLzEuNS4wLzU0LjMwYmY5MGQzNjFlYjRhZTdjYjcwNDYwN2E2YzBjYTUwY2VlNjA2OTUuYXBr&iat=1694151993&sig=8c7698f2cf794de71c15c9ed3cfc2147&size=30110027&from=cf&version=latest&lang=id&fp=37fc37e464e8d7d3772d57c8ac9d7713&ip=139.0.111.59)
+[idm]()
 # Bahan
 [idm](https://www.internetdownloadmanager.com/download.html)
 [gdrive](https://www.drive.google.com)
