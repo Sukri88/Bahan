@@ -18,13 +18,13 @@ https://oll238o.video-delivery.net/u5kjxxfxb3e3sdgge72tgoiqjmz5vp32wifazi3yk7kjx
 
 ```console
 
-idm exe download
+https://fra156p.video-delivery.net/u5kjxvnxb3e3sdgge5us6osach7fu5swpjxbsdcylp7ennl6b4xul5yvoquq/bpkkhn1fpu~dYIDZGft9L?token=unk8oefnda1u9cls01zexsby&expiry=1694136037150
 
 ```
 
 ```console
 
-idm exe download
+https://tsk652sb.video-delivery.net/u5kjxsfxb3e3sdgge7csiicgilousk2i26fqysbvkris5kvxenjd5krdpjca/zp10yi54q3~s7YidjdHOF?token=fh2yq1yct8m68bmfcvb4typk&expiry=1694136113896
 
 ```
 ```console
