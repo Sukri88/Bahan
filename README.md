@@ -1,7 +1,7 @@
 # Downloads
 
 [genyio](https://cloud.geny.io/)
-[idm]()
+[idmapk](https://doc-04-bc-docs.googleusercontent.com/docs/securesc/fglqaaoc2bvt71ma2bnmjpii5fhe2c8d/7uaenp1juf4vkub6a0beicnvp6i2mhfb/1694179350000/13414982129313358387/05082490202773402859Z/1UY1wRitbsbluXU1qJTb7C8pkO225dk-H?e=download&uuid=20fac773-4f96-49a9-9ca5-751dac81e9e5&nonce=rsgmiq4t2cavq&user=05082490202773402859Z&hash=l3gh17ms32sg98kasehnjrocbogudec4)
 # Bahan
 [idm](https://www.internetdownloadmanager.com/download.html)
 [gdrive](https://www.drive.google.com)
