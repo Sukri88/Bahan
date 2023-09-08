@@ -12,7 +12,7 @@ https://de492ki.video-delivery.net/u5kj63fxb3e3sdgge7lcqlcajrpabr6um6eq5fqb6l5oi
 
 ```console
 
-idm exe download
+https://oll238o.video-delivery.net/u5kjxxfxb3e3sdgge72tgoiqjmz5vp32wifazi3yk7kjxumttcva3ie7booq/yk8lzv5r5j~wJg8AaMGIA?token=alwulpudp8wesje9fxlhbexn&expiry=1694135907313
 
 ```
 
