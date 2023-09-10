@@ -1,6 +1,6 @@
 # Downloads
 
-[genyio](https://cloud.geny.io/join/36777aa0-67a6-4673-bcb8-cd1178dbf589)
+[genyio](https://cloud.geny.io/join/b882006a-e2be-42ef-b0c2-6778389794bf)
 [idmapk](https://drive.google.com/file/d/1UY1wRitbsbluXU1qJTb7C8pkO225dk-H/view?usp=drivesdk)
 # Bahan
 [idm](https://www.internetdownloadmanager.com/download.html)
