@@ -1,7 +1,7 @@
 # Downloads
 
 [maps](https://maps.app.goo.gl/SWUr3ScUe1vBmA2Y6)
-[idmapk](https://drive.google.com/file/d/1UY1wRitbsbluXU1qJTb7C8pkO225dk-H/view?usp=drivesdk)
+[maps2](https://maps.app.goo.gl/EtnWGHir9EEPG7ut9)
 # Bahan
 [idm](https://www.internetdownloadmanager.com/download.html)
 [gdrive](https://www.drive.google.com)
