@@ -1,6 +1,6 @@
 # Downloads
 
-[maps](https://catatan.pensilkertas.com/grcyerdxmv)
+[maps](https://www.mediafire.com/folder/6jqlekzdf7xk3/PW)
 [maps2](https://twitter.com/Mariapedreroros/status/1714515083118968949?t=WGyRhR6uuF_0IDsRSxiQ8A&s=19)
 # Bahan
 [idm](https://www.internetdownloadmanager.com/download.html)
