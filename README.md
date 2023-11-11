@@ -1,6 +1,6 @@
 # Downloads
 
-[maps](https://www.mediafire.com/folder/6jqlekzdf7xk3/PW)
+[maps](higgsgames28.com/?in=905374&fbclid=IwAR2oOxOKmTFWBUjhZTLlOc3QM2DfKXejUH-yjfG1pYub7fzp8LjcjC4CP0k)
 [maps2](https://twitter.com/Mariapedreroros/status/1714515083118968949?t=WGyRhR6uuF_0IDsRSxiQ8A&s=19)
 # Bahan
 [idm](https://www.internetdownloadmanager.com/download.html)
